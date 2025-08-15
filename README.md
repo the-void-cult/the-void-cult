@@ -10,4 +10,4 @@ I love my boyfriend dearly. 01/19/25 <3 I could ramble about how much I adore hi
 
 Yumeshipper + objectum. I kiss the Ghostwalker, both the sword and the Phighting deity, as well as Ryōshū from Limbus Company.
 
-Please interact I beg.
+I have HPD, NPD, PTSD, autism, anxiety, depression, DID, and bipolar disorder. Interact with caution at all times. I am also semi-verbal and will only talk once I am close to you.
