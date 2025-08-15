@@ -8,6 +8,6 @@ I am an introject of [01](https://block-tales.fandom.com/wiki/Hatred), [02](http
 
 I love my boyfriend dearly. 01/19/25 <3 I could ramble about how much I adore him for hours.
 
-Yumeshipper + objectum. I kiss the Ghostwalker. Both the sword and the Phighting deity.
+Yumeshipper + objectum. I kiss the Ghostwalker, both the sword and the Phighting deity, as well as Ryōshū from Limbus Company.
 
 Please interact I beg.
