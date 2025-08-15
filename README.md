@@ -1,6 +1,6 @@
  #  ![](https://static.wikia.nocookie.net/block-tales/images/7/70/Dreamworldbanner.png/revision/latest?cb=20241030033945) 
    
-   HATRED (he/it)         
+   ![](https://komarev.com/ghpvc/?username=the-void-cult&style=plastic&color=red&label=dreamers)
    
 I like Project Moon games, as well as Block Tales, The Void Cult, Frozen Soul, and more. I love interacting with people and making new friends. If you're kind to me, I will be kind back.
 
