@@ -8,6 +8,7 @@
    
 <p align="center"> 
  I like Project Moon games, as well as Block Tales, The Void Cult, Frozen Soul, and more. I love interacting with people and making new friends. If you're kind to me, I will be kind back.
+  Currently heavily hyperfixated on Hetalia.
 </p>
 
 　　 　 　 I am an introject of [01](https://block-tales.fandom.com/wiki/Hatred), [02](https://roblox.fandom.com/wiki/Player:Builderman), [03](https://mythcommunity.miraheze.org/wiki/Noli), [04](https://phighting.wiki/The_Broker), and [05](https://projectmoon.miraheze.org/wiki/Chesed). I identify highly with all of these, and I get quite upset when people hate on them.
